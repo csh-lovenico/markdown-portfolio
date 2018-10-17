@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+1. μ's
+   1. Nico Yazawa
+2. Aqours
+   1. Ruby Kurosawa
