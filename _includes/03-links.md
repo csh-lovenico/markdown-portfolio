@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+[Weibo](https://www.weibo.com/u/6567887397/)
